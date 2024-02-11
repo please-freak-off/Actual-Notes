@@ -1,0 +1,10 @@
+- I really want these to be both similar enough that they hearken to classic and well loved fantasy tropes, but I alien enough that they feel new.
+- I also wanted to get rid of some of the christian influences. Straight up Hell exists in most fantasy settings and I don't think people understand how somewhat weird that is.
+- I also wanted to make some new "races" or what I've dubbed a pheno (*p.* phena) to make the world feel newer still.
+- Also, I'm a monster fucker. Sue me.
+- [[Elves]]
+- [[Orcs]]
+- [[Humans]]
+- [[Dwarves]]
+- [[Tieflings]] (Gotta Find a new name for this)
+- [[]]

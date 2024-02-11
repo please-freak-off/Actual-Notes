@@ -1,0 +1,12 @@
+# Major elements
+- [[Sarcotronica/Behomoths]]
+- [[Sarcotronica/Biomorphic Resonance]]
+- [[Sarcotronica/Psionics]]
+- [[Sarcotronica/Cybernetics]]
+- [[Sarcotronica/Alien Gods that did the sameshit you did a couple thousnd years ago]]
+- [[Sarcotronica/Sarcurgy]]
+-
+- [[Sarcotronica/Soma]]
+-
+- # Stories
+- [[Sarcotronica/Unnamed Story 1]]

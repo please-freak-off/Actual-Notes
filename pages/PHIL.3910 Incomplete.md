@@ -1,0 +1,15 @@
+- Final Essay
+	- HODAPP PLAN RECOMENDATION
+		- Reread Angela Davis
+		- Private Prisons
+			- Literally Incarceration for Profit
+			- In terms of theorhetically should be top priority enemy
+			- e.g. serial killers are ultimate shitty man
+		- Prisons are tools of exploiting labor
+		- Lenin: Highest Stage how prison
+	- DONT COPY AND PASTE
+- Notes
+	- [[PHIl.3910 Final Essay/Docile Bodies Notes]]
+-
+- Reflection 4
+	- No conscious decision maker in Capitalism, just kinda memes living and dying.

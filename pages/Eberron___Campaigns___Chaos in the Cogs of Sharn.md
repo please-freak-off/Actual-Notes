@@ -1,0 +1,71 @@
+alias:: Chaos in the Cogs of Sharn
+
+- # Overview
+- Someone kill a city council member
+- Tyrant's killed a city council member
+- Demon did it. Tyrants realize that pinniing everything on Demons is a really good way to get away with shit.
+- Goblin Fascists are there protecting the body on order of the Tyrants
+- Kill Goblins investigate body, find evidence of demon portal or something.
+- figure out where the tyrants are keeping demon portal
+	- Hotdog stand guy Half Orc sees people goin in and out of Tyrant's Warehouse every so often repeating secret code that he horribly mispronounces.
+		- History Check reveals that this is some old timey Gnomeish phrase that guy misheard.
+	- City Watch, who can be bribed with food, will tell you location of the Warehouse but only if you promised to not tell his boss.
+	- [[House Tarkanan]] DMNPC will be edgy and help party but only to stop the Tyrants. Also they wanna go in the demon portal.
+	- Dragonborn wench will be seen crying outside of one of the players stoops.
+		- Sad over council member's death! She was one of her best clients!
+- Locations
+	- Skinny Pete's Brothel and Bar
+	- Industrial Center
+	- [[Tavrick's Landing]]
+	- Warehouse
+-
+- WAREHOUSE FIGHT AHHHH
+	- close demon portal and kill tyrants at the same time.
+	- Giant construction crane stuff into Portal!
+-
+- # Characters
+- ### Mykalizd Yunkra of the Unter Dah'khanni
+	- #### Personality
+		- Goblin Fascist ala Measurehead
+		- A member of the Unter Dah'khanni, a goblin nationalist organization that seeks to rebirth the Dahkhanni empire by driving out all foreigners from Sharn.
+		- Anything that is not a goblin is cringe. Orcs, Tieflings, and Dragonborn are especially cringe.
+		- Will absolutely criticize you for doing anything degenerate.
+		- Has a posse of hobgoblins heeding his every word. They're *kinda* horny about it, but will try to hide that. Mykalizd will have absolutely no idea.
+		- Respects Humans but thinks they're ultimately uncivilized.
+	- #### Purpose in the story
+		- Much like Measurehead is guarding access to the docks. He's gaurding access to a crime scene, refusing anyone that is not his employers to see it.
+		- His employers are the Tyrants they want to keep the body from being investigated.
+- ### [[House Tarkanan]]  Changeling Rogue DMNPC
+- ### Dragonborn Brothelworker
+- ### Wise Hotdog stand Orc
+- ### Human City Watch Can be Bribed with food
+- ### Tyrants Boss too in over his own head
+-
+- # Mystery Progression
+- Who killed the Council Member
+	- Demons
+	- Nope! The Tyrants *using* Demons
+	- Nope again! maybe? Tyrants were hired by another Council Member to have her assassinated!
+- Why'd they kill her?
+	- money? votes? something???
+-
+- # Encounters
+- ## Goblin Fascists encounter.
+	- Can either
+		- Kick their fucking teeth in
+			- Mykalizd
+			- 2 Bugbears
+			- A Hobgoblin caster
+		- Accept Goblinoid Supremacy
+		- Debate bro them so hard they run away crying.
+		-
+- ##  DA FINAL FIGHT
+	- Demon Portal Spawning more guys!
+		- Spawns 2 Demons per Round of Combat
+	- Tyrants Boss and his goons trying to get rid of everyone.
+		- Tyrant Boss (more of a low ranking general too in over his head)
+		-
+	- Crane/Forklift that has a bunch of rocks in it's claw - perfect size for plugging up demon portal.
+		- Goons will try to stop you from reaching forklift?crane? IF they realize (on a DC 11 luck check) what you're doing.
+		- Demons are more just trying to murder stab you.
+		-

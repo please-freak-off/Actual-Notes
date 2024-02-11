@@ -1,0 +1,21 @@
+- Reasonable Goal Setting
+	- Group Task Assignment
+	- Possible Goals
+		- Set up Topics through Spring Breaks
+		- Set up Game Night/Softball/movie night
+		-
+- Communication Channels
+	- Note taking/Project Management App (High Priority)
+	- E-Board Communication
+		- Contact President? by 5pm Monday
+		- Routine Meeting Day
+		- Agendas Go out on Friday
+- Meeting Consistency
+- Talk with Cheyenne
+	- Behavior Guidelines
+	- Constitution and Bylaws
+	- Group Agreements/Norms
+	- Official Roles
+	- How to enforce Boundaries
+		- Faculty Engagement
+-

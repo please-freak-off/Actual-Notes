@@ -1,0 +1,14 @@
+- *so like its these two homeless trans girls right? and they kinda can't stand each other but they're together anyway. but not like dating just like dependent on each other, in some healthy and and unhealthy ways.*
+- *they live in this huge city and they want to leave but they can't - for emotional reasons, financial, disability/transport issues, and it's not like anywhere outside the city is any better.*
+- *they usually sleep together for warmth in places where the cops don't look. one of them is a busker, the other is a sex worker.*
+- *when they're not scraping together cash, they remove most of their body parts - keeps down maintenance and energy costs. they sold most of their limbs quite some time ago. One of their faces got repo'd so now they share the face whenever necessary. usually, the sex worker has it on for obvious reasons, but it's* technically *the busker's property*
+- Anyway, one day, the sex worker finds a dead women with her face still intact. They rip it off of her and like yeah, jealousy between two desperate trans woman who are also are like 4chan/tumblr brain rot SH low self-esteem weirdos'
+- They also go through like a bureaucratic nightmare hell of trying to get the face like registered by the gubbermnt
+- And it's total hell because they're lying through their teeth about the details but they mean the broad strokes for the most part.
+- So they just fucking book it out of the city or whatever. It's not like they've never been outside of it, but they won't have any idea what to do once they get there.
+- They love each other, they have sex, but they do it to satisfy a need within themselves, and not because that's something they want to give  to the other.
+- Eventually the [[Sarcotronica/Sarcurgy]] starts to give them weird side effects. sharing 1 face is already weird but having more than one face is fucking Not Supposed to Happen.
+	- Also they absolutely look terrifying with the face unplugged. Just real flesh anatomy bones n stuff with like cauterized wire couplings where blood vessels should be.
+	- Also the faces themselves look somewhat assembled, they're like krrchnked together and bound with like fancy joints and stuff.
+- The weird side effects start giving her like false memories that sorta stuck around from the dead woman they pulled it off. (there's a reason why she was found dead!! now we know!)
+-

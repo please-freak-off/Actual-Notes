@@ -1,0 +1,52 @@
+# *an ethical formulation of the phrase "from each according to his ability, to each according to his need"* or *an attempt at cooperative labor ethics*
+- **i.t.** stands for in theory. it is not a hypothetical perfect thing nor an ambiguous reference to a specific thing or other formulation of that thing or whatever, but it is the abstracted form of all that thing.
+- I THINK that what im trying to define here is that the Thing i.t. is that thing which, in a specific context, is the object which must includes the set of a traits  that defines the category for which the Thing i.t. is included in.
+- Another way to say that previous sentence:  The Thing i.t. is included in a Category. The Thing i.t. is the object which has all the traits that allow the The Thing i.t. to be in said category.
+- The presence or absence of categorical traits are contextual and only matter in a specific context. Note that all traits for all objects in the category must share that same context.
+	- We can restrict football field lines from the category of rectangle so long as we also restrict basketball field lines from the category rectangle because they are technically not perfect rectangle (as in they are in reality strips of paint that we as humans approximate to be rectangles and a rectangle cannot "actually exist" - whatever that means)
+- If something is claimed to share a category that does not share a trait with The Thing i.t., it better have a damn good reason not to.
+- ### Verbose explanation of the Thing i.t.
+- The Thing i.t. is
+	- a theoretical object of which any     thing that shares the same set of qualities that The Thing i.t. would be considered the same kind of thing.
+		- e.g. a square is a kind of rectangle. The rectangle i.t. is the The Thing i.t. that squares share a category with. The rectangle i.t. has four sides at 90 degree angles.
+	- additionally, an existing object that language or perception or whatever considers to be part of that thing i.t. may have real exceptions to the defining qualities of The Thing i.t. but only if they are justified to do so. Note: any justification can and should attempt to be refuted.
+		- e.g. The shape of the lines on a football field is in the same category as The Thing i.t. because we have decided that it is more useful as a society to treat the football field as tho it shares the same category as The Rectangle i.t. than it is to not do so.
+	- finally, the thing i.t. has a level of inclusion and excclusion that is specific to a certain context.
+		- e.g. the shape of the lines on a football shares a category with The Rectangle i.t. in the context that we are attempting to compare and measure things that can be reasonably compared to other things like
+- ## What might be the *Society i.t.*?
+	- *Society* i.t. as that which allows for cooperation to take place.
+		- Cooperation being that which the labor of more than one individual is multiplicative rather than additive in output.
+		- Marx?
+	- *Society* i.t. as the Stratum for Memetic Idea
+		- Hegel?
+		- This definition is accidental only in origin but still a necessary aspect of Society i.t.
+		- In my materialist opinion, this trait can only be a defining trait if the other trait is also defining.
+- ## Burden
+- ### society i.t. can be made to bear burden.
+	- When labor is multiplicative, its fruits *can* exceed that which is needed by the population.
+		- However, under capitalism, this cannot happen because the laborers do not decided what the labor being done produces and what is produced is only that which allows for the further exploitation of the exploited. This is a non burden bearing society.
+- society i.t. in order to justify its existence must promise to bear some kind of burden.
+	- this is why libertarians are fucking dumb.
+- scientific socialism i.t. (i would need the knowledge of a thousand failed revolutions to know the traits of scientific socialism i.t. - i partially attempt to make an argument for one such trait here) is a system which keeps society i.t. to be held accountable.
+- ### What is the ethical obligation for society to bear burdens?
+	- egoist ethical response. What the fuck are we all laboring for if not to enjoy the fruits of said labor? Why should I cooperate if there is nothing given to me return?
+		- The rebuttle to this is that it is Moral to do so, and the Authority to Assert what is and is not Moral has rested in the hands of Religion/God for the majority of human history.
+		- The short and violent history of humanity is one that went seemingly backwards in terms of spiritual development. We started assuming that God was real without any real way to prove it, and now that we realized we actually need to prove what we say or people get hurt, we are faced with what Nietzsche describes in *The Gay Science*
+			- *"God remains dead. And we have killed him! How can we console ourselves, the murderers of all murderers! The holiest and the mightiest thing the world has ever possessed has bled to death under our knives: who will wipe this blood from us With what water could we clean ourselves?"* - The Gay Science, Friedrich Nietzsche
+			- Of course you have a meltdown from not being able to prove your creators existence, to not have purpose, no origin for your presence, no proof/reason that you exist and yet here you are.
+			- Further more, people are trying to construct concepts of God that exclude your own existence.
+		- ### Marginal cases: What about the disabled? They cannot labor to the capacity of a non-disabled person.
+			- its heartbreaking that this is even a fucking question. hilarious on the sheer magnitude of how heartbreaking it is. it makes a joke of humanity that this question even exists.
+			- I will still attempt to make a formulation of the ethical egoist response to this question
+			- Show me a disabled person and I'll show you someone's entire world. *you* and maybe even me might not understand the significance of a disabled person.
+			- However, even if you were to disregard the person-hood of a disabled person, you cannot dictate how someone else uses the fruits of their labor provided it does not inflict positive harm onto the other members of the labor cooperative.
+			- In conclusion, if your labor cooperation causes negative harm by sheer virtue of one of the laborers using the fruits of that labor as they see fit, then that cooperation is not created cooperation by consent, but by coercion.
+			- Why on earth would you labor for something if you did not see something in return?
+			- Laboring for the sake of it is literally throwing away value. Humans, as mortal creatures, have a limited amount of labor in our lives.
+		- ### Are you saying that doing things out of sheer kindness shouldn't happen?
+			- An act of kindness to another individual vs providing your labor in a cooperation are two very different things.
+			- An act of kindness to another may use the fruit of labor (cooperative or not) but cannot
+- ## Final Formulation of The Principle of Duty and Burden
+	- If one is allowed, by the society i.t., to enjoy the fruits of labor made through cooperation one must accept that
+		- one must take on the duty of providing to the cooperative effort to the best of their ability.
+		-

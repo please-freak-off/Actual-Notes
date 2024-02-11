@@ -1,0 +1,37 @@
+alias:: The City of Towers
+
+- 1st Note: this is a fucking rewrite bc installing a plugin deleted the fucking page. Admittedly I was also fucking around with the titles and i think it just kinda got Lost or something. Lets see if i can't recreate this entire fucking thing from memory.
+- 2nd Note: Ok turns out the linked references on former sub pages still have the original context of the link? basically gotta do some detective work to put back some of the pieces that i can.
+- 3rd Note: I think some of the backlinks are fucked since I'm repeating them?Something is definetly fucky.
+-
+- ## History
+- 1000 years go by, Some pirate named [[Malian]], [[the Weaver]] used his pirate crew to basically colonize it
+	- Learned about its history from goblin locals
+	- Renamed it to Sharrat
+- [[King Galifar I]] then conquerred the continent of [[Khorvaire]], and took Sharn with it.
+- During [[The Last War]], Sharn was almost entirely left alone and it's citizens didn't really fucking care until a terrorist attack on the now destroyed the [[Eberron/Khorvaire/Sharn/Glass Tower]] occurred in the city and then they got big mad
+- ## Geography
+- ### Wards and Levels
+-
+- ### List of Wards
+	- [[Eberron/Khorvaire/Sharn/Central Plateau]]
+	- [[Eberron/Khorvaire/Sharn/Cliffside]]
+	- [[Eberron/Khorvaire/Sharn/North Edge]]
+	- [[Eberron/Khorvaire/Sharn/Mentis Platue]]
+	- [[Eberron/Khorvaire/Sharn/Tavrick's Landing]]
+	- [[Eberron/Khorvaire/Sharn/The City of the Dead]]
+	- [[Eberron/Khorvaire/Sharn/Dura]]
+- ### List of Levels
+	- [[Eberron/Khorvaire/Sharn/Skyway]]
+	- [[Eberron/Khorvaire/Sharn/Upper City]]
+	- [[Eberron/Khorvaire/Sharn/Middle City]]
+	- [[Eberron/Khorvaire/Sharn/Lower City]]
+	- [[Eberron/Khorvaire/Sharn/The Depths]]
+	- [[Eberron/Khorvaire/Sharn/The Cogs]]
+- ### Even Deeper Yet
+-
+- ### List of Levels
+-
+- ## Culture
+- ## Politics
+-

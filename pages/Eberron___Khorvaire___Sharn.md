@@ -1,0 +1,64 @@
+alias:: The City of Towers, Sharn
+
+- 1st Note: this is a fucking rewrite bc installing a plugin deleted the fucking page. Admittedly I was also fucking around with the titles and i think it just kinda got Lost or something. Lets see if i can't recreate this entire fucking thing from memory.
+- 2nd Note: Ok turns out the linked references on former sub pages still have the original context of the link? basically gotta do some detective work to put back some of the pieces that i can.
+- 3rd Note: I think some of the backlinks are fucked since I'm repeating them?Something is definetly fucky.
+- [[Eberron/Campaigns/Chaos in the Cogs of Sharn]]
+-
+-
+- ## History
+	- Ancient [[Eberron/Khorvaire/Dhakkanni Empire]] Dahkhanni city, until it was overrun by Dahlkyr.
+	- 1000 years go by, Some pirate named [[Malian]], [[the Weaver]] used his pirate crew to basically colonize it
+		- Learned about its history from goblin locals
+		- Renamed it to Sharrat
+	- Then, [[House Tarkanan]] took it over, ruled it with an iron grip, and then slowly lost its power.
+	- [[King Galifar I]] then conquerred the continent of [[Khorvaire]], and took Sharn with it.
+	- During [[The Last War]], Sharn was almost entirely left alone and it's citizens didn't really fucking care until a terrorist attack on the now destroyed [[Eberron/Khorvaire/Sharn/Glass Tower]] occurred in the city and then they got big mad and joined the war.
+- ## Geography
+- ### Wards and Levels
+- ### List of Wards
+	- [[Eberron/Khorvaire/Sharn/Central Plateau]]
+	- [[Eberron/Khorvaire/Sharn/Cliffside]]
+	- [[Eberron/Khorvaire/Sharn/North Edge]]
+	- [[Eberron/Khorvaire/Sharn/Mentis Platue]]
+	- [[Eberron/Khorvaire/Sharn/Tavrick's Landing]]
+	- [[Eberron/Khorvaire/Sharn/The City of the Dead]]
+	- [[Eberron/Khorvaire/Sharn/Dura]]
+- ### List of Levels
+	- [[Eberron/Khorvaire/Sharn/Skyway]]
+	- [[Eberron/Khorvaire/Sharn/Upper City]]
+	- [[Eberron/Khorvaire/Sharn/Middle City]]
+	- [[Eberron/Khorvaire/Sharn/Lower City]]
+	- [[Eberron/Khorvaire/Sharn/The Depths]]
+	- [[Eberron/Khorvaire/Sharn/The Cogs]]
+- ### Even Deeper Yet
+-
+-
+- ## Culture
+	- Sharn is a melting pot of all the different cultures of the world. Its the metropolis of all metroplises.
+	- Take New York, Cairo, and Hong Kong, mix them together, and add a couple of tourists from Hell and back, and you have approximately what it's like to live in Sharn.
+	- Of course, there is a lot of Brelish influence from the Big Guys, but don't be surprised to a Dhakkani hot dog stand that has been there for literally 1000 years right next to some new age drow cafe and a demonic boxing gym.
+	- Art takes on a new magical sheen, many of the murals on the walls of ancient towers are animated with autocantrips.
+- ## Technology
+	- Eberron is a magitech, not steampunk, setting. Everything is built from the ground up with magic, but automated and industrialized enough to make it almost socio-economically indistinct from a 1920s metropolis.
+	- The level of magic in Eberron is not evenly distributed - cantrips and lower levels are far more common than higher level spells. In Sharn, magic is automated and industrialized via the employment of [[Eberron/Khorvaire/Sharn/Magewrights]], manual (or as manual as it gets with magic) laborers casting spells all day in a factory or on a construction sight.
+	- #### Transportation
+	- [[Eberron/Khorvaire/The Lightning Rail]]
+	- [[Eberron/Khorvaire/Elemental Airships]]
+	- Teleportation magic is not incredibly common due to its high level.
+	- #### The Towers of Sharn
+	- The Towers are Sharn's namesake. Their incredible height is matched in awesomeness only by their vast histories. Every tower is a record of a culture long gone, with new layers of a tower being added every so often but whatever civilization currently controls Sharn.
+	- The Towers themselves are kept up by a powerful amount of low level magic, much like everything in the city.
+	- #### Communication
+-
+- ## Politics and Organized Crime
+	- ### Legal Authority
+		- [[Eberron/Khorvaire/Sharn/Lord Mayor of Sharn]], an authority figure imposed onto Sharn by edict of the [[Kingdom of Breland]]
+		- [[Eberron/Khorvaire/Sharn/City Council]] and the [[Eberron/Khorvaire/Sharn/City Watch]] are the City's own legislative and enforcing organizations of Sharn.
+		- While the [[City Council of Sharn]] and the [[Sharn City Watch]] are both more or less independent organization, the [[Eberron/Khorvaire/Sharn/Lord Mayor of Sharn]] can technically overpower their decisions whenever he so pleases.
+	- ### Economic Power
+	- [[Eberron/Khorvaire/Sharn/The Sixty Families]] are a group of the sixty wealthiest families in Sharn. Their e
+	- [[Eberron/Draconic Prophecy/Dragonmark/Dragonmarked Houses]] are world spanning houses made up of several families of [[]]
+	-
+	-
+	-

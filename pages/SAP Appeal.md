@@ -1,0 +1,32 @@
+## What Happened?
+- ### What did you not meet?
+	- I withdrew and failed many courses due to many different extenuating circumstances, including mental health and social challenges.
+- ### Per Semester Explanation
+	- Fall 21 change of major, transition to UML
+		- I withdrew and failed many courses due to many different extenuating circumstances, including mental health and social challenges.
+	- Spring 22 was ok,
+		- The Spring '22 Semester was OK, I was doing things half passionately and getting used to my environment.
+	- Summer 22, Mental Hospital.
+		- In the summer of 22, I had a mental health crisis and was hospitalized at Emerson's Behavioral Health Unit for 6 days.
+	- Fall 22, Depression
+		- My depression still remained and even though these subjects are of my current interest, I was still unable to keep up with course load and manage my worsening mental health at the same time.
+		- My depression worsened to the point where I passed after not eating all day, and was picked up by EMS.
+	- Summer 23, Degree Pathway Mistake.
+		- Unrelated to the mental health, but it turns out I didn't actually need Spanish as part of my degree pathway, yet only realized until after the Add/Drop date.
+	- Fall 23 Incomplete, working on it, almost done.
+		- Was facing backlash for medically transitioning by parents, managed to scrape by this semester by the skin of my teeth.
+- ### Social Stuff
+	- Recently cut off from abusive parents because I'm undergoing medical gender transition.
+- ## What Changed
+	- Going to a psychiatrist, I have an appointment with a Mantra Health specialist.
+	- I am already doing much better than my previous semesters.
+	- I finally know what I want my major to be and am completing courses with good grades.
+	- I got married and my current family is infinitely more supportive of me.
+- ## Supporting Documents
+	- [_] Hospital Release Notes
+	- [_] Note From Hodapp abt INC
+	- [_] Signed letter from Hodapp/Hamilton that she knows that my situation's fucked.
+	- [_] Note from counselor
+	- [_] Marriage certificate
+	- [_] Record from UMLPD about wellness check.
+	- [_]

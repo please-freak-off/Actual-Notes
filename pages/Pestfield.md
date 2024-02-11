@@ -1,0 +1,21 @@
+- Bugworld of bugs
+- The Main Bugs
+	- Praying Mantis - Humans
+	- Spider -
+	- Scorpions -
+	- Beetles - Dwarves
+- Religion/Miracles
+	- Hive Pantheon
+		- Good Gods - Larva of a Divine bug acts like a Holy Symbol
+			- Honey is magic (lost of bugs make honey)
+			- Hornets, gods of justice.
+			- Ants, gods of war.
+			- Termites, gods of decay and destruction
+		- Unholy gods of the Pantheon
+			- Ophiocordyceps unilateralis - That fungus that controls ant bodies.
+	- Mammal Worship
+		- The Moose
+		- The Bear
+		- The Gull
+		-
+-

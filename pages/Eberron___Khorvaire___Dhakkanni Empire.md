@@ -1,0 +1,3 @@
+- Goblin, Bugbear, and Ogre empire that used to rule khorvaire.
+- then, after the Dahlkyr invasion, they really stopped giving a shit.
+-

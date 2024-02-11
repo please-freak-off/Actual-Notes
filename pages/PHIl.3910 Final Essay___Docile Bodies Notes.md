@@ -1,0 +1,8 @@
+- Soldiers are no longer found they are made.
+- This is because we can now make the body docile.
+	- Symbolic Gestures of to recreate the image of the soldier.
+	- Bodies can be shaped and trained to become docile.
+	- It was no longer that bodies are being trained purely for their output, but for their operation as well.
+- Painstaking attention to detail is what makes the body docile.
+- as output increases, so does the discipline the body must experience.
+-

@@ -1,0 +1,49 @@
+alias:: Sharn, The City of Towers, Ja'Sharrat, Sharrat
+
+- ## History
+- Used to be Ja'Sharrat, part of Dhakkani empire.
+- Got over run by Daelkyr (demon)
+- 1000 years go by, Some pirate named [[Malian]], [[the Weaver]] used his pirate crew to basically colonize it
+	- Learned about its history from goblin locals
+	- Renamed it to Sharrat
+- Gregor Firstking conquered it and renamed it.
+- In [[The War of the Mark]], [[House Tarkanan]] conquered the city, ruling it with an iron fist.
+- [[House Tarkanan]] slowly lost its grip on Sharn and destroyed nearly half the city in a final act of retaliation.
+- [[King Galifar I]] then conquerred the continent of [[Khorvaire]], and took Sharn with it.
+- During [[The Last War]], Sharn was almost entirely left alone and it's citizens didn't really fucking care until a terrorist attack on the now destroyed the [[Sharn/Glass Tower]] occurred in the city and then they got big mad
+- Sharn now is under the jurisdiction of the [[Kingdom of Breland]]
+- ## Geography
+- The City of Towers gets its namesake from the fact that it's made up of towers that rival real life skyscrapers in height.
+- The towers of sharn do not just have vertical layers, but chronological ones as well. The younger layer of a tower are usually built on top of the ruins of older layers built during the many different periods of its history. At the oldest.
+- ### Platues
+- Sharn is built in and around a canyon, and is (partially) divided into different platues.
+- #### List of Wards
+	- [[Sharn/Central Plateau]]
+	- [[Sharn/Mentis Platue]]
+	- [[Sharn/North Edge]]
+	- [[Sharn/Dura]]
+	- [[Sharn/Tavrick's Landing]]
+	- [[Sharn/The City of the Dead]]
+	- [[Sharn/Cliffside]]
+- ### Wards
+- Sharn is also vertically split into different wards. Since the plateaus are of differing heights, not all wards include all plateaus
+- #### List of Levels
+	- [[Sharn/Skyway]]
+	- [[Sharn/Upper City]]
+	- [[Sharn/Middle City]]
+	- [[Sharn/Lower City]]
+	- [[Sharn/The Depths]]
+	- [[Sharn/The Cogs]]
+- Usually (as an allegory for capitalism) the wealth of Sharn is most concentrated at the Skyway and a wealth gradient goes down into the [[Sharn/The Cogs]]
+- ### Beneath Sharn
+- ## Culture of Sharn
+- Sharn is a melting pot of not just [[Khorvaire]], but the entirity of [[Eberron]]. Different races, nations, and sub/counter cultures populate the bustling metropolis.
+- The born-and-raised Sharn Native will usually speak multiple languages, have a diverse ancestry, and know the ins-and-outs of many different cultures of [[Eberron]]
+- However, since it is now officially a [[Brelish]] city, it is currently seeing a large influx of [[Brelish]] cultural influence.
+-
+- ## Politics of Sharn
+- [[Sharn/Lord Mayor of Sharn]] *de facto* leader and direct line of communication
+- [[Sharn/City Council]] main force of intra-city legislative power, of which there are currently 17 members.
+- [[Sharn/City Watch]]
+- [[Sharn/The Sixty Families]]
+- [[Sharn/Gangs of Sharn]]
