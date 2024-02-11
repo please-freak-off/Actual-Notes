@@ -1,0 +1,4 @@
+- The name of the world beneath their feet.
+- The Flesh of what remains of [[Sarcotronica/The Halcyon Age]] has sloughed off and turned into petrol.
+- What remains is a reanimated corpse of the past, reassembled to support a uncanny mimicry of its former glory.
+- What was an organic anarchy has now been molded into a deeply flawed order.

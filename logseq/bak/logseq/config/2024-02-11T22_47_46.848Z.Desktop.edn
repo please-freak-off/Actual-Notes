@@ -292,7 +292,7 @@
  ;;  :journal?        false} ; Default value: false
 
  ;; Favorites to list on the left sidebar
- :favorites ["sarcotronica" "Current Projects" "Nameless Eldritch Biopunk Setting" "eberron/campaigns/chaos in the cogs of sharn" "eberron/khorvaire/sharn/chaos in the cogs of sharn" "eberron/khorvaire/sharn/campaigns/chaos in the cogs of sharn" "SAP Appeal" "eberron/sharn" "Sharn" "Campaigns/Chaos in the Cogs of Sharn"]
+ :favorites ["sarcotronica" "Current Projects" "Nameless Eldritch Biopunk Setting" "eberron/campaigns/chaos in the cogs of sharn" "eberron/khorvaire/sharn/chaos in the cogs of sharn" "eberron/khorvaire/sharn/campaigns/chaos in the cogs of sharn" "eberron/sharn" "Sharn" "Campaigns/Chaos in the Cogs of Sharn"]
 
  ;; Set flashcards interval.
  ;; Expected value:
@@ -413,12 +413,12 @@
  ;;      ;use Percent-encoding for other invalid characters
  :file/name-format :triple-lowbar
  :feature/enable-timetracking? false
- :graph/settings {:journal? false
+ :graph/settings {:journal? true
  :orphan-pages? false
  :excluded-pages? false
  :builtin-pages? false}
- :feature/enable-journals? false
+ :feature/enable-journals? true
  :feature/enable-whiteboards? false
  :feature/enable-flashcards? false
  :default-home {:page "Current Projects"}
- :ui/show-brackets? true}
+ :ui/show-brackets? false}
