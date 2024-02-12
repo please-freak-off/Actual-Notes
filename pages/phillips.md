@@ -1,0 +1,5 @@
+- Said that
+	- berrardo and Evans met on an "erotic forum"
+	- and that this is why Berrado was hired
+	- and further allowed a rumor of berrardo and evans having "something sexual
+	- all this per the former philosophy club president.
