@@ -1,5 +1,8 @@
-- Said that
+- The weird  evans berrardo shit.
+	- i kinda betrayed my own ideals and a close friend to confirm this information.
+		- the friend understood this as me invoking the deluzean concept of the lion's claw. fighting the negative with the negative because there is no other option.
 	- berrardo and Evans met on an "erotic forum"
 	- and that this is why Berrado was hired
 	- and further allowed a rumor of berrardo and evans having "something sexual
-	- all this per the former philosophy club president.
+	- all this per a former philosophy club member
+-
