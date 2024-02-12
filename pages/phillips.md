@@ -5,4 +5,5 @@
 	- and that this is why Berrado was hired
 	- and further allowed a rumor of berrardo and evans having "something sexual
 	- all this per a former philosophy club member
--
+- The venty discord dm stuff.
+	-
