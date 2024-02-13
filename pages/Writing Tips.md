@@ -1,7 +1,9 @@
-- Good writing is hard. You most likely suck at it.
+## Good writing is hard. You most likely suck at it.
 	- You still have self worth as a human for writing.
-- Say the fucking thing
-	- being cryptic and  unnecessarily passive is not going to add depth to your work.
+	- you sucking at writing does not make you a bad person.
+	- like ppl being born with talent for writing is like fake. you either write and get b etter or you don't.
+- ## Say the fucking thing
+- being cryptic and  unnecessarily passive is not going to add depth to your work.
 	- e.g. do not do this.
 		- The dish shattered into a fractal menagerie of angst as the sound of angered screams of a young woman in a 40 year old's body nearly ruptured the eardrums of the curled up son.
 	- instead try a two step approach.
