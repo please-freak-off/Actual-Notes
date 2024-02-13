@@ -1,0 +1,16 @@
+- Good writing is hard. You most likely suck at it.
+	- You still have self worth as a human for writing.
+- Say the fucking thing
+	- being cryptic and  unnecessarily passive is not going to add depth to your work.
+	- e.g. do not do this.
+		- The dish shattered into a fractal menagerie of angst as the sound of angered screams of a young woman in a 40 year old's body nearly ruptured the eardrums of the curled up son.
+	- instead try a two step approach.
+		- First Say the fucking tbhing
+			- The woman threw a dish a ground and she started screaming at her son.
+		- Then decorate it.
+			- A plate whizzed by the young boys head. The mother is screaming at her son who's now crying.
+		- Notice how it's kind of hard to decorate this? Notice how fitting in themes and emotions is pretty difficult? This is the challenge of the writing - identifying the challenge is the first step to overcoming.
+		- Also lets try to decide on a voice. First person? A bit more active maybe?
+			- My mother chucked a plate near my feet as she started screaming. I thought her screaming was going to rupture my eardrums. The memory of shattered ceramic will never leave my mind.
+		- You need a subject in every sentence! If you don't put one, the reader will make one up and that is NOT good.
+-
