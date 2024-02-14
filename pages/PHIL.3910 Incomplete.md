@@ -9,7 +9,9 @@
 		- Lenin: Highest Stage how prison
 	- DONT COPY AND PASTE
 - Notes
-	- [[PHIl.3910 Final Essay/Docile Bodies Notes]]
+	- [[PHIL.3910 Incomplete/PHIl.3910 Final Essay/Docile Bodies Notes]]
+	- [[PHIL.3910 Incomplete/PHIl.3910 Final Essay/Angela Davis Notes]]
+	-
 -
 - Reflection 4
 	- No conscious decision maker in Capitalism, just kinda memes living and dying.

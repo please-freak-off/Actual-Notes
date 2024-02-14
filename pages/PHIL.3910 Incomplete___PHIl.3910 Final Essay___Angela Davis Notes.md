@@ -1,0 +1,11 @@
+## Chapter 1
+	- Prison is accepted as a universal necessity.
+	- Prison Abolition is basically unthinkable, unnatural to have life without it/
+	- 2 milllion of 9 million prisoners are in a US prioson.
+	- She believes that we are not totally fascist yet. Is liberalism really this bad?
+	- "tough on crime"
+	- evildoer criminal - mental images that are reduced to racist stereotypes
+	- most people in prison are black or latino
+- ## Chapter 2
+	- The prison is a historical extension of the plantation system, which was the producing machine of colonialism.
+	-
