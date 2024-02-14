@@ -9,4 +9,7 @@
 - ## Okay but How do you do your job?
 - Read Books
 	- ACT UP History Book
+	- How to Survive a Plague
 	-
+- Health Ethics
+	- Fox is guarding the Hen House.
