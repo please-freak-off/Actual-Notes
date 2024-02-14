@@ -1,4 +1,5 @@
 # Major elements
+- [[Sarcotronica/Vibes]]
 - [[Sarcotronica/L'Os]]
 - [[Sarcotronica/Behomoths]]
 - [[Sarcotronica/Alien Gods that did the sameshit you did a couple thousnd years ago]]

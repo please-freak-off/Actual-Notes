@@ -1,7 +1,6 @@
-- The name of the world beneath their feet.
-- The Flesh of what remains of [[Sarcotronica/The Halcyon Age]] has sloughed off and turned into petrol.
-- What remains is a reanimated corpse of the past, reassembled to support a uncanny mimicry of its former glory.
-- What was an organic anarchy has now been molded into a deeply flawed order.
+- It's our name of the world beneath our feat.
+- It's an older word for The Bones. What's deep is old and what's old is deep and this will always hold true.
+- Just a saying, don't think too much about it.
 -
 - # Locations
 - [[Sarcotronica/L'Os/Iron Maw]]

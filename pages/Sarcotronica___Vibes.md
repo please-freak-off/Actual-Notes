@@ -1,0 +1,36 @@
+- Okay so. I'm gonna answer what the vibe of [[Sarcotronica]] is, because I have a lot going on and it's gonna be difficult to try and like wrap it up in a presentable bundle. Ah Cal's critique of philosophical jargon is stuck in my head. Antijargonism is a pretty good name for the position, right?
+- It's gotta be about biopower and Marx's reproductive labor, right? And it also has to be about the chaos of flesh and commentary about how sterile our world is?
+- There is a distinction between the industrialized world and the natural world and it is sterility.
+- Ok but is [[Sarcotronica]] about that? Is sarcotronica about how we have alienated organic life from humanity under capitalism? Does capitalism even exist in this moment?
+- It is a story of excess. Fundamentally. It has to be a story about Gluttony. About taking in too much to the detriment of others. It's not christian, bc I'm not a christian and I do not need God to talk about any of this.
+- I feel like I'm in over my head with this stuff. What am I doing? I'm so bored and begging to be given something interesting to do, yet I have no way of forcing myself to do it.
+- You're writing. You're putting words down on a page and maybe telling them to someone who will listen. You're preserving thought and there's a real value in that.
+- Yeah but the world's gonna end, I'm gonna die stuck in a lab producing and reproducing results that no one will care about and dying as a suburbanite or some shit. I fear not my own death but the fact that I live in a dead world.
+- Hm. Sounds like good copy for a nihilistic setting.
+- Oh how interesting! no one has ever done a post apoclyptic setting before!
+- You know, you're awfully mean to me.
+- I'm sorry.
+- And there you go apologizing for yourself again. You really do hate existing.
+- It's fucking awful work, it is.
+- I don't really have an answer for you. I've been trying to come up with a good one, but fundamentally I'm still a part of you with all of your features and flaws.
+- So much for finding the answer within myself.
+- You're having fun writing this, though, right?
+- I've gotta admit that it is therapeutic.
+- Why are you writing this?
+- Because it's fucking cool! Because it rules! It's gross, it's sticky, it's wet, and it smells bad! So much fantasy and cyberpunk and even grimdark bullshit is made up of a setting with perfect bodies and perfect words and perfect governments with like one or two interesting flaws that half the time they break. I want a setting that makes you uncomfortable all the time! Anxiety around machines! (Puts on hat that says Deleuze in the fashion of a ham helmet)
+- You're writing like you can't stop yourself. It's cute.
+- Is it egoistic to want to flirt with yourself?
+- Probably. But what is sin to a non believer?
+- Someone's probably cringing at this writing.
+- You're assuming that someone else besides yourself is reading this.
+- You're right. I'm writing this bc it makes me feel good.
+- See? you like something about yourself.
+- But I can't stay in my own head forever.
+- Why not? It's nice here. Plenty of delusions to make the time go by. You said it yourself the world is dead out there, who left out there to care about your opinion?
+- It's not well it;s not my opinion. It's me, partiallly.
+- My first instinct is to keep you from going out there. My second is to simply ask you this: Are you sure you're ready to open your guts out like that?
+- I've been trying to. I've been trying to make people understand me for a long time. I've been trying to open my real guts out in front of them, to teach others to be as vulnerable as I am.
+- And how vulnerable are you really?
+- Well as the first prophet of this doctrine am I not given some kind of leeway? Can I be forgiven for my humanity?
+- Depends, will you force people to subjugate themselves for their sins?
+- No, I just ask them to be honest about who they are.
