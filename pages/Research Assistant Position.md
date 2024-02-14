@@ -8,9 +8,27 @@
 - How to time your work. https://www.Toggle.com
 	- Honor system.
 - ## Okay but How do you do your job?
-- Read Books
+- National Institute of Allergens and Infectious Diseases is a sub-institute National Institute of Health 
+  One of 27 actually.
+  Fauci was director of NIAI
+  Francis Collins was director of NIH
+- Read Books - Vibe Check Status on these books. Don't annotate - just get a rough outline.
+	- Get a sense of stakes and players and themes and who's the Big Bad. What's the morality?
 	- ACT UP History Book
-	- How to Survive a Plague
-	-
+	- **How to Survive a Plague || Read me first!**
+		- How the ACT UP movement pressured the NIH into research.
+	- Human Embryonic Stem Cells - Kissling Anderson
+		- Francis Collins - former NIH director until end of 2022
+		- Bush Administration
 - Health Ethics
 	- Fox is guarding the Hen House.
+- Researching how the NIH reacts to shit.
+	- Behavioral Analysis of the NIH organism population
+	- Elizabeth Dietz (they/them)
+	- National Library of medicine
+	- How does it protect from damage? What does it do when it can't solve the problem?
+	- Philosophy of institution of science under a liberal democracy
+		- What could it look like?
+			- Materialist perspective
+				- Marx
+				- Science, Truth, and Democracy - Phillip Kitcher ()Evans Academic Grandpa)
