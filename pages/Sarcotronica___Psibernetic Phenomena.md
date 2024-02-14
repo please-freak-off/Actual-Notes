@@ -1,0 +1,6 @@
+- Different features of the world that take advantage of the fact that almost everything and everyone is connected to the [[Sarcotronica/Psibernetic Phenomena/Psibernet]].
+- A network of connected neurons, signals mostly misunderstood.
+- There's no spooky action at a distance, just a lot of mind control stuff.
+- anyway [[Sarcotronica/Psibernetic Phenomena/Ghosts]] are real lol.
+- [[Sarcotronica/Psibernetic Phenomena/Psibernetically Resonant Artifice]]
+-

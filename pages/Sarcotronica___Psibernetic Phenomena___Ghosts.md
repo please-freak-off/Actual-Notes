@@ -1,0 +1,1 @@
+- Ghosts are not like actual ghosts. They are traumatic experiences that haunt local [[psiber]]

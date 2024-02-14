@@ -1,6 +1,6 @@
 - It's our name of the world beneath our feat.
-- It's an older word for The Bones. What's deep is old and what's old is deep and this will always hold true.
-- Just a saying, don't think too much about it.
+- It's an older word for The Bones. What's deep is old and what's old is deep and this will always hold true. Everything else, the flesh, it changes to quickly. And while The Bones might shift around, it's still from the same beat at the end of the day.
+- Behemoths might erupt from the ground, the spirits might take over the world, but the Bones will reamain, unphased.
 -
 - # Locations
 - [[Sarcotronica/L'Os/Iron Maw]]

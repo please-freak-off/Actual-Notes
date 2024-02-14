@@ -4,6 +4,7 @@
 - [[Sarcotronica/Behomoths]]
 - [[Sarcotronica/Alien Gods that did the sameshit you did a couple thousnd years ago]]
 - [[Sarcotronica/Sarcurgy and Psibernetica]]
+- [[Sarcotronica/Psibernetic Phenomena]]
 -
 - # Stories
 - [[Sarcotronica/Unnamed Story 1]]
