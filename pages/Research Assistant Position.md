@@ -2,8 +2,7 @@
 - ## Logistics
 - Thing will open, apply, and then it will close. all on jobhawk
 - Digital Timesheets
-- slack? Github? What work sharing platfom "Box"
-- Zotero
+- "Box" and "Zotero"
 - Project Meetings on Tuesdays
 - How to time your work. https://www.Toggle.com
 	- Honor system.
