@@ -1,4 +1,5 @@
 - The Lace of Vulgarmarch is a weird fucking place. But it's also familiar.
+  title:: Vulgarmarch/Laces/The Lace of Vulgarmarch
 - Big Features
 	- Floating Islands that like actually move (some are chained together in weird ways)
 	- Giant Ocean Stitch
@@ -7,4 +8,5 @@
 	- Big RAVINE in the OCEAN that iS EVIL and WHERE DROW COME FROM
 	- Biiiiiiig ol mountains'
 	- Travelling Hurricains and Snow storms and sandstorms that just wreak havoc (maybe there's something inside there!)
+	- Weird Gods
 	-

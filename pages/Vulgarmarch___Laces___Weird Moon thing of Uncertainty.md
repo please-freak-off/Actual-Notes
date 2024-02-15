@@ -1,0 +1,3 @@
+- Literally where quantum physics comes from
+- No one "knows" where this thing is but people worship it from time to time.
+- In the center of it is a blackhole, and on the otherside of that blackhole is a city
