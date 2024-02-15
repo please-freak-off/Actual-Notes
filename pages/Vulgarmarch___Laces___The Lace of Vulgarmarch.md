@@ -8,5 +8,8 @@
 	- Big RAVINE in the OCEAN that iS EVIL and WHERE DROW COME FROM
 	- Biiiiiiig ol mountains'
 	- Travelling Hurricains and Snow storms and sandstorms that just wreak havoc (maybe there's something inside there!)
-	- Weird Gods
-	-
+	- Weird Gods of weird shit idk.
+		- DISGUST AND LOVE
+		- HONOR AND TRICKERY
+		- MADNESS AND SERENITY
+		- BODY AND ROT
