@@ -8,4 +8,22 @@
 	- most people in prison are black or latino
 - ## Chapter 2
 	- The prison is a historical extension of the plantation system, which was the producing machine of colonialism.
-	-
+	- Slavery abolition also used to be unthinkable.
+	- It was and still is for black people to be seen as equals.
+	- Lynching and Segregation as the way to uphold inequality, it too was thought to be able to last forever.
+	- Prisons are fundamentally racist (I think also classist and sexist)
+- ## Ideas
+	- Prisons exists as a way to demonstrate who is societally permitted to be exploited. The non-white, the gays, the poor. The prison it self serves as the way to survey abnormality and a lab for experimentation. A justification to put a marginalized group into prison is a justification for the exploitation of that group of people.
+	- Fascism's failure is that instead of allowing these people to work exploited,  they simply kill them or institutionalize their exploitation.
+- ## Working Thesis
+	- Prison exists as a way to demonstrate to the larger capitalist system which kinds of people are okay to exploit. Specifically black people are subjugated to an institutional racism that can be explained away through bioessentialist campaigns throughout history.
+		- This is done by claiming that there is no government or institutional pressure to put these people in jail, it's just that the people are in prions are inherently evil or born to be criminals or just nothing can be done about them.
+			- The Spectacle, the mountains of media that control the discourse, are able to promote this line of thinking.
+				- https://www.jstor.org/stable/j.ctt9qgf2k
+				  id:: 65cd1c65-4afd-43b1-acf3-b133d064c9b0
+			- Concretely, this line of thinking usually manifests as The War on Drugs, Lynch mobs, Jim Crow and Segregation laws,
+		- I have theory as to why this is, but ultimately it might not be useful and could be too broad of an idea.
+			- But basically I think that Prisons adapted to fill in the the other modes of oppression/exploitation that the governments claim to have abolished or legislated away.
+				- This means that prisons are not just racist, they are fundamentally cisheterosexist, xenophobic, and classist, as they exist as a very good institution
+				-
+-
