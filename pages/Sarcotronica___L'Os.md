@@ -4,4 +4,4 @@
 -
 - # Locations
 - [[Sarcotronica/L'Os/Iron Maw]]
--
+- [[Sarcotronica/L'Os/]]
