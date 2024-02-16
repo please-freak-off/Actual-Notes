@@ -1,0 +1,7 @@
+- [[Sarcurgic Artifice]]
+- The Manipulation of Flesh
+- Basically you can 1) make machines out of meat 2) grow said meat machines out of your body to be able to use them at will.
+- Lots of Sarcurgey is also [[Psibernetically Harmonic Artifice]] so it can be controlled mentally. But a good chunk of it can use manual input.
+- There's a lot of different [[Sarcurgic Artifice]] with a variety of different shapes and uses - most importantly it is NOT all squishy! in fact most of it is incredibly rigid and even fragile! Often using structures much like insect and crustacean exoskeletons to give a smooth yet firm feel.
+-
+-

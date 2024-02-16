@@ -7,7 +7,7 @@
 - And it's total hell because they're lying through their teeth about the details but they mean the broad strokes for the most part.
 - So they just fucking book it out of the city or whatever. It's not like they've never been outside of it, but they won't have any idea what to do once they get there.
 - They love each other, they have sex, but they do it to satisfy a need within themselves, and not because that's something they want to give  to the other.
-- Eventually the [[Sarcotronica/Sarcurgy and Psibernetica]] starts to give them weird side effects. sharing 1 face is already weird but having more than one face is fucking Not Supposed to Happen.
+- Eventually the [[Sarcotronica/Sarcurgy]] starts to give them weird side effects. sharing 1 face is already weird but having more than one face is fucking Not Supposed to Happen.
 	- Also they absolutely look terrifying with the face unplugged. Just real flesh anatomy bones n stuff with like cauterized wire couplings where blood vessels should be.
 	- Also the faces themselves look somewhat assembled, they're like krrchnked together and bound with like fancy joints and stuff.
 - The weird side effects start giving her like false memories that sorta stuck around from the dead woman they pulled it off. (there's a reason why she was found dead!! now we know!)

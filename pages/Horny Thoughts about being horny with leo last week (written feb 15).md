@@ -1,0 +1,30 @@
+- uh okay i showed up at like 9 at Green line Park St station
+- he was wearing pajama pants and a jacket and a sleeveless turtleneck
+- he just keeps talking to me and i just keep listening bc im tired and i really like the sound of his voice
+- stories about his like stage crew coworker friends and their ridiculous hijinks of parking meter ties and and putting ducks everywhere.
+- i wanna be close to him so bad but i also wanna be polite
+- he finally invites me into his bedroom to sleep and im just !!!!!
+- we take off our clothes and i just kinda remember immediatly what it's like to feel warm skin and have my hair played with.
+- the rapidly planted kisses on cheek and neck and sometimes on his lips
+- everything else is kinda blurry. i liked it when he was hugging me and i
+- he told me he's a somnophilliac and like i just exploded? idk? bored sex/free use my beloved
+- it wasn't the most comfortable thing in the world while hanging out in his kinda cramped bed, especially while trying to make room for the beagle. (yeah we did a LOT of stuff in front of that dog. It's attractive of him but obviously not bc of the dog, just like his realness for like just letting the dog be there bc like who cares lol)
+- Just like the way we curled around it achother
+- the way hhehehehehheeeeeeeeeeeeeee BIt me. The way he we start big and go smaller and smaller until it felt like a needle.
+- He bit my colarbone and it was so painful but i kept going bc i wanted the pain idk
+- he kept setting such clear boundaries about how he wanted to be treated and like jadkjafn
+- i loved picking him up and placing him on top of me. especially when he was still kinda sleepy.
+- i really liked biting him and hearing him whimper from it. iinajnd;fa HHININ! sa dfn faf
+- and eating him out, the way he immediatly squirmed away as soon as i touched his clit but at the same time asking me to keep going
+- the way he ACTUALLY held me down
+- i came on his body while straddling his waist and for like 2 seconds i actually felt my orgasm.
+- i need his hands on my back so bad.
+- We got pizza and garlic bread (which was also pizza) and alkdfjlas
+- I sorta showered with him. I got to clean his hair and shampoo his head "only autsists know the vaule of a good head message"
+- HES RUSSIAN
+- he's also a little fucked up and i like it.
+- he cares about his dog so much its really hot
+- he's a chaser for trans women. Im a chaser for transmascs im ngl. i told him this.
+- he's a polycule breaker (based)
+- he loves fucking mentally ill trans women (kinda not based but i take what i can get)
+-
