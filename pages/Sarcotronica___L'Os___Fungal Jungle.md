@@ -1,0 +1,2 @@
+- Remember the shit from naussica of the valley of the wind?
+	- yeah straight up that.

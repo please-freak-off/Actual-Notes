@@ -6,3 +6,4 @@ alias:: Behemoth, Behemoths, Leviathan, Leviathans
 - Behemoths are chemeoheterotrophs - they survive on the organic matter that travels into their oral cavities.
 - There was some suggestion that due to their similar morphology, amphibians and snakes shared a genetic lineage with them, however this theory tends to only be supported by the most optimistic scientists.
 -
+-

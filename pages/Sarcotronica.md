@@ -1,13 +1,18 @@
 # Major elements
 - [[Sarcotronica/Vibes]]
 - [[Sarcotronica/L'Os]]
-	- [[Sarcotronica/L'Os/Behomoths]]
-		- [[Sarcotronica/L'Os/Behomoths/Eve Behemoth]]
-		-
+	- [[Sarcotronica/L'Os/Locations]]
+		- [[Sarcotronica/L'Os/The Polis of Eve]]
+		- [[Sarcotronica/L'Os/Iron Maw]]
+		- [[Sarcotronica/L'Os/The Sanguine Sea]]
+		- [[Sarcotronica/L'Os/Fungal Jungle]]
+	- [[Sarcotronica/L'Os/Geopolitics]]
+	-
+- [[Sarcotronica/Behomoths]]
+	- [[Behemoth Eve]]
 - [[Sarcotronica/Alien Gods that did the sameshit you did a couple thousnd years ago]]
 - [[Sarcotronica/Sarcurgy]]
 - [[Sarcotronica/Psibernetic Phenomena]]
--
 - # Stories
 - [[Sarcotronica/Unnamed Story 1]]
 -
