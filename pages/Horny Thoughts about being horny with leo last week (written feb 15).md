@@ -27,4 +27,7 @@
 - he's a chaser for trans women. Im a chaser for transmascs im ngl. i told him this.
 - he's a polycule breaker (based)
 - he loves fucking mentally ill trans women (kinda not based but i take what i can get)
--
+- he scratched my back so hard it made me bleed. he said he'll carve his name into my back next time.
+- waking up next to him and getting to bother him immediatly was so much fun.
+- the way he yoinked me around :33333
+- he did the thing where he put pressure on the sides and back of my neck and it felt so good. He wants me to do it to him and by god i will try.
