@@ -1,0 +1,3 @@
+- it's like the inside of a planet
+- and it's like the aether
+- on the otherside of that is the

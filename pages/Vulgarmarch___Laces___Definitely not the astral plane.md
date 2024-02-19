@@ -1,0 +1,3 @@
+- It's on the other side of [[Vulgarmarch/Laces/Inverted Cloud Heaven]]
+- also the [[Vulgarmarch/Laces/Weird Moon thing of Uncertainty]] is here
+-

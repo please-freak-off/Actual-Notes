@@ -1,12 +1,21 @@
 - The Lace of Vulgarmarch is a weird fucking place. But it's also familiar.
-  title:: Vulgarmarch/Laces/The Lace of Vulgarmarch
-- Big Features
+- It's like the layering of all the laces in one location.
+- FIRE LAVA AHHH
+	- [[Vulgarmarch/Laces/The Lace of Vulgarmarch/BISMUTH MOUNTAIN RANGE WITH WEIRD GLASS AND METAL]]
+- SNOW AND SAND
+	- [[Vulgarmarch/Laces/The Lace of Vulgarmarch/COLD DESERT - SNOW LIKE SAND LIKE SNOW]]
+- GRASS AND FUN!!!
+	- [[Vulgarmarch/Laces/The Lace of Vulgarmarch/CLOTH STUFFING PLUSH LAND]]
+	- [[Vulgarmarch/Laces/The Lace of Vulgarmarch/COOL FLOWER FOREST WITH MUSHROOMS]]
+- WATER EVIL DARK
+	- [[Vulgarmarch/Laces/The Lace of Vulgarmarch/GIANT FLESH BONES AND ROT EVIL AND LIKE IDK MYSTERY FLESH PIT LAND]]
+-
 	- Floating Islands that like actually move (some are chained together in weird ways)
 		- [[Vulgarmarch/Laces/The Lace of Vulgarmarch/COLD DESERT - SNOW LIKE SAND LIKE SNOW]]
-		- [[Vulgarmarch/Laces/The Lace of Vulgarmarch/COOL FLOWER FOREST WITH MUSHROOMS]]
-		- [[Vulgarmarch/Laces/The Lace of Vulgarmarch/BISMUTH MOUNTAIN RANGE WITH WEIRD GLASS AND METAL]]
-		- [[Vulgarmarch/Laces/The Lace of Vulgarmarch/CLOTH STUFFING PLUSH LAND]]
-		- [[Vulgarmarch/Laces/The Lace of Vulgarmarch/GIANT FLESH BONES AND ROT EVIL AND LIKE IDK MYSTERY FLESH PIT LAND]]
+		-
+		-
+		-
+		-
 	- Giant Ocean Stitch
 	- Giant Crystals of Concentrated Magical Energy
 	- Fucking Volcano Pit Straight to Hell Stitch

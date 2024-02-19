@@ -416,7 +416,7 @@
  :graph/settings {:journal? false
  :orphan-pages? false
  :excluded-pages? false
- :builtin-pages? true}
+ :builtin-pages? false}
  :feature/enable-journals? true
  :feature/enable-whiteboards? false
  :feature/enable-flashcards? false

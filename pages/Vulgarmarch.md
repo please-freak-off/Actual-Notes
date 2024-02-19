@@ -11,7 +11,7 @@
 	  logseq.order-list-type:: number
 	- Then again, if it's a cooler name for the thing and it still reads as the titular thing, then i suppose it's mostly fine. If you're calling squirrels "glompus" then you better have a damn good reason as to why
 	  logseq.order-list-type:: number
-- Read Marx lol
+- Read Marx or Hobbes or Somone or something.
   logseq.order-list-type:: number
 - and what if i fucking upload this shit to github then huh?
   logseq.order-list-type:: number
