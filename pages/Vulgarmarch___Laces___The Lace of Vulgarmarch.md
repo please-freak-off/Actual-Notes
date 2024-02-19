@@ -1,29 +1,25 @@
 - The Lace of Vulgarmarch is a weird fucking place. But it's also familiar.
-- It's like the layering of all the laces in one location.
-- FIRE LAVA AHHH
-	- [[Vulgarmarch/Laces/The Lace of Vulgarmarch/BISMUTH MOUNTAIN RANGE WITH WEIRD GLASS AND METAL]]
-- SNOW AND SAND
-	- [[Vulgarmarch/Laces/The Lace of Vulgarmarch/COLD DESERT - SNOW LIKE SAND LIKE SNOW]]
-- GRASS AND FUN!!!
-	- [[Vulgarmarch/Laces/The Lace of Vulgarmarch/CLOTH STUFFING PLUSH LAND]]
-	- [[Vulgarmarch/Laces/The Lace of Vulgarmarch/COOL FLOWER FOREST WITH MUSHROOMS]]
-- WATER EVIL DARK
-	- [[Vulgarmarch/Laces/The Lace of Vulgarmarch/GIANT FLESH BONES AND ROT EVIL AND LIKE IDK MYSTERY FLESH PIT LAND]]
--
+	- It's like the layering of all the laces in one location.
+- Biomes Biomes Bioooommessss
+	- Vulgarmarch/Laces/The Lace of Vulgarmarch/FIRE LAVA AHHH RAGE GRR
+		- [[Vulgarmarch/Laces/The Lace of Vulgarmarch/BISMUTH MOUNTAIN RANGE WITH WEIRD GLASS AND METAL]]
+		- [[Vulgarmarch/Laces/The Lace of Vulgarmarch/Fucking Volcano Pit Straight to Hell Stitch]]
+	- SNOW AND SAND TRANQUILITY jjjjasdf
+		- [[Vulgarmarch/Laces/The Lace of Vulgarmarch/Travelling Hurricanes and Snow storms and sandstorms that just wreak havoc (maybe there's something inside there!)]]
+		- [[Vulgarmarch/Laces/The Lace of Vulgarmarch/COLD DESERT - SNOW LIKE SAND LIKE SNOW]]
+	- GRASS AND FUN!!!
+		- [[Vulgarmarch/Laces/The Lace of Vulgarmarch/CLOTH STUFFING PLUSH LAND]]
+		- [[Vulgarmarch/Laces/The Lace of Vulgarmarch/COOL FLOWER FOREST WITH MUSHROOMS]]
+	- WATER EVIL DARK
+		- [[Vulgarmarch/Laces/The Lace of Vulgarmarch/GIANT FLESH BONES AND ROT EVIL AND LIKE IDK MYSTERY FLESH PIT LAND]]
+		- [[Vulgarmarch/Laces/The Lace of Vulgarmarch/Giant Ocean Stitch]]
+		- [[Vulgarmarch/Laces/The Lace of Vulgarmarch/Big RAVINE in the OCEAN that iS EVIL and WHERE DROW COME FROM]]
 	- Floating Islands that like actually move (some are chained together in weird ways)
 		- [[Vulgarmarch/Laces/The Lace of Vulgarmarch/COLD DESERT - SNOW LIKE SAND LIKE SNOW]]
-		-
-		-
-		-
-		-
-	- Giant Ocean Stitch
-	- Giant Crystals of Concentrated Magical Energy
-	- Fucking Volcano Pit Straight to Hell Stitch
-	- Big RAVINE in the OCEAN that iS EVIL and WHERE DROW COME FROM
-	- Biiiiiiig ol mountains'
-	- Travelling Hurricains and Snow storms and sandstorms that just wreak havoc (maybe there's something inside there!)
-	- Weird Gods of weird shit idk.
-		- DISGUST AND LOVE
-		- HONOR AND TRICKERY
-		- MADNESS AND SERENITY
-		- BODY AND ROT
+- Giant Crystals of Concentrated Magical Energy
+	- Biiiiiiig ol mountains
+- Weird Gods of weird shit idk.
+	- [[Vulgarmarch/Laces/The Lace of Vulgarmarch/DISGUST AND LOVE]]
+	- [[Vulgarmarch/Laces/The Lace of Vulgarmarch/HONOR AND TRICKERY]]
+	- [[Vulgarmarch/Laces/The Lace of Vulgarmarch/MADNESS AND SERENITY]]
+	- [[Vulgarmarch/Laces/The Lace of Vulgarmarch/BODY AND ROT]]
